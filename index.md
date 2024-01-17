@@ -39,6 +39,8 @@
   to happen when it's timely from a noise standpoint. 
 - Carpet Cleaning: Joe Webber, company "The Finest Detail." End of May.
 - Dish antennas can be removed.
-- Bikes should not be brought into the building. Bruce has added this to the Evolve web site.
+- Bikes should not be brought into the building. 
+  [Rules & Regulations](https://zinccondoassociation.github.io/RulesAndRegulations/) have been modified accordingly. 
+  Bruce has added this to the Evolve web site.
 - Sign or talk to UPS to put packages along the side hall.
 - If music or noise gets too loud, Patrick said come talk to him and he will turn it down.
