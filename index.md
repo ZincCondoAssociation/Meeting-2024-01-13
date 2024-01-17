@@ -15,6 +15,9 @@
     snow removal people don't come can bill the association for their time.
   - Alex will print a Log sheet for when we have to shovel and put it on the back
     of the closet door. We'll do that for a couple of months and then revisit.
+- Trash and Recycling to be taken out from back porch Wed night and empty bins returned Thursday.
+  These are included in the log sheet.
+  - Natalie said that she knows high schoolers that Bruce can pay to do this during his slots.
 - Back deck turns into an ice sheet if it doesn't get shoveled when the snow
   is fresh, then becomes dangerous and hard to remove.
   - We will buy a heated mat for the back deck, Alex will check.
