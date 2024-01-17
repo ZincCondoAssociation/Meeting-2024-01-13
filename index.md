@@ -41,4 +41,4 @@
 - Dish antennas can be removed.
 - Bikes should not be brought into the building. Bruce has added this to the Evolve web site.
 - Sign or talk to UPS to put packages along the side hall.
-- If music or noise gets too loud, talk to whoever is doing it.
+- If music or noise gets too loud, Patrick said come talk to him and he will turn it down.
